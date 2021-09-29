@@ -1,1 +1,1 @@
-i have no clue what im doing
+part time dumbass, full time failure :D
